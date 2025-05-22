@@ -4,6 +4,8 @@
 
 **Time Shooter 3** is an *insane* first-person shooter (FPS) game where **time only moves when you do**. Get ready for an **unstoppable** blend of *strategy*, *speed*, and *precision* as you take down enemies in **blazing slow motion**. Armed with powerful weapons and quick reflexes, you’ll become a **legendary time-bending assassin**.
 
+## <a href="https://1kb.link/Z9kR5T">👉 Click To Play Time Shooter 3: SWAT Unblocked 👈</a>
+
 ---
 
 ### 🕹️ **Game Genre & Features**
